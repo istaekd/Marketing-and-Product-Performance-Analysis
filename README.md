@@ -1,1 +1,1 @@
-# Marketing-and-Product-Performance-Analysis
+# Marketing and Product Performance Analysis
